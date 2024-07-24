@@ -1,1 +1,1 @@
-# InternCareer-Content-writer-internship
+# InternCareer-internship
